@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Mohiyud-Din
-- 👀 I’m interested in HR and Business consulting
-- 🌱 I’m currently learning HR issues
+- 👀 I’m interested in HR and Business Development
+- 🌱 I’m currently learning on Diffesrent HR issues
 - 💞️ I’m looking to collaborate on HR and Business forum.
 - 📫 How to reach me mohidipu@yahoo.com
 
